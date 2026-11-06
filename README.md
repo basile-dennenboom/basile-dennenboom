@@ -1,4 +1,4 @@
-# 🔭 Basile Aelterman
+# 🎄 Basile Aelterman
 
 **`Junior Software Engineer`**
 
